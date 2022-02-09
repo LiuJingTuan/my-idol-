@@ -1,0 +1,2 @@
+# my-idol-
+network class 
